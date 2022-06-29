@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Irene, breaking the comfort zone since 1994
+- 👋 Hi, I’m Irene, breaking the comfort zone since day 1.0
 - 👀 I’m overall interested in leveraging research, science and technical innovation to strengthen human condition
 - ✨ BSc in Computer Engineering, MSc in Computer Science
 - ✨ Eager learner
