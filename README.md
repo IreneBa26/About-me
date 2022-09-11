@@ -6,7 +6,8 @@
 - ✨ Always keen on challenges and self improvements
 - ✨ Big data, AI and Blockchain-Web3.0 enthusiast
 - ✨ In my free time I'm a Volleyball player
-- ✨ I am a strong advocate for Diversity & Inclusion: gender equality, women's empowerment and social inequality
+- ✨ Passionate advocate of Diversity & Inclusion: gender equality, women's empowerment and social inequality
+- ✨ "If you are not having fun, what's the point?"
 - ✨ Curiosity is my driving force: I can switch from technology to philosophy in a second
 - 🌱 I'm currently learning more about smart contract programming languages and crypto space
 - 💞 I’m looking to collaborate on blockchain and decentralized projects
